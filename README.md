@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-GUHM960313MDFZRR06
+GUHM960313MDFZRR06
